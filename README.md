@@ -1,2 +1,5 @@
 # STATS10
- Winter Quarter 2020
+ 
+    Winter 2020 taken with Professor Cha
+
+    Received an A+ in the class
